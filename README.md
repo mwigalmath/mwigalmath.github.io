@@ -1,1 +1,0 @@
-# mwigalmath.github.io
